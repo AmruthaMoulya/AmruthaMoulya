@@ -1,5 +1,5 @@
 # 💫 About Me:
-A passionate and creative thinker from India<br><br>🌱 I'm currently learning Ai and Data science <br>🏫 I'm currently Pursuing computer science and engineering at Maharaja institute of technology Mysore<br>🗒 Check out my resume...... <br>📈 All of my projects are available on<br>https://www.linkedin.com/in/amrutha-e<br>
+A passionate and creative thinker from India<br><br>🌱 I'm currently learning Ai and Data science <br>🏫 I'm currently Pursuing computer science and engineering at Maharaja institute of technology Mysore<br>🗒 Check out my resume...... <br>📈 All of my projects are available on<br>https://www.linkedin.com/in/amrutha-e<br>✉️reach me amruthamoulya8@gmail.com<br>
 
 
 ## 🌐 Socials:
